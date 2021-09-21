@@ -1,0 +1,2 @@
+# AMAPAFAP.github.io
+blog
